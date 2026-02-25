@@ -1,5 +1,9 @@
-## Hi there 👋
+## ov3rhead
+### professional vibe coder
+i like linux and uhh i know python and stuff?
+my domain expired... didnt know web anyway...
 
+i have a iphone 7 plus btw all jailbroken and shitt
 <!--
 **overhead1108/overhead1108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
