@@ -1,9 +1,9 @@
 ## ov3rhead
 ### professional vibe coder
-i know **python** and stuff?
-i have a iphone 7 plus **jailbroken**
+*i know **python** and stuff?*
+*i have a iphone 7 plus **jailbroken***
 
-i want to use **linux** i am confined to **windows**
+*i want to use **linux** i am confined to **windows***
 <!--
 **overhead1108/overhead1108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
