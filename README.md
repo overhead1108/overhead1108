@@ -1,9 +1,9 @@
 ## ov3rhead
 ### professional vibe coder
-i like linux and uhh i know python and stuff?
-my domain expired... didnt know web anyway...
+i know **python** and stuff?
+i have a iphone 7 plus **jailbroken**
 
-i have a iphone 7 plus btw all jailbroken and shitt
+i want to use **linux** i am confined to **windows**
 <!--
 **overhead1108/overhead1108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
