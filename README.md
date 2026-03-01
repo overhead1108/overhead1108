@@ -1,12 +1,19 @@
-## ov3rhead (aka eloscan, berkay g. and paradisewaves76)
-*i know **python** and stuff?*
-*i have a iphone 7 plus **jailbroken***
+# ***ov3rhead (aka eloscan, berkay g. and paradisewaves76)***
+*i know **python** and stuff?*\
+*i have a iphone 7 plus **jailbroken***\
 *i want to use **linux** i am confined to **windows***
-***pronous:*** *normal men*
-***looking to collaborate on:*** *dynarch project*
-***how to reach me:*** *on discord, with the name "ov3rhead"*
-***things i want to learn*** *~~fm26~~* *c or rust*
-<ins>***fuck ai and jews***</ins>
+
+***pronous:***\
+*normal men*
+
+***looking to collaborate on:***\
+*dynarch project*
+
+***how to reach me:***\
+*on discord, with the name "ov3rhead"*
+
+***things i want to learn***\
+*~~fm26~~* *c or rust*
 <!--
 **overhead1108/overhead1108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
