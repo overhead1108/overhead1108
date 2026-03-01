@@ -4,6 +4,9 @@
 *i have a iphone 7 plus **jailbroken***
 
 *i want to use **linux** i am confined to **windows***
+
+
+# fuck jews
 <!--
 **overhead1108/overhead1108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
