@@ -2,6 +2,7 @@
 *i know **python** and stuff?*\
 *i have a iphone 7 plus **jailbroken***\
 *i want to use **linux** i am confined to **windows***
+(happily announcing im switching to linux later this year!!!)
 
 ***pronous:***\
 *normal men*
