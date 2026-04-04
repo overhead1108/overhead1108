@@ -1,4 +1,4 @@
-# ***ov3rhead (berkay g.)***
+# ***ovrhead***
 *i know **python** and stuff?*\
 *i have a iphone 7 plus **jailbroken***\
 *i want to use **linux** i am confined to **windows***
