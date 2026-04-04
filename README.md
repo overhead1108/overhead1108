@@ -1,20 +1,14 @@
-# ***ovrhead***
 *i know **python** and stuff?*\
-*i have a iphone 7 plus **jailbroken***\
-*i want to use **linux** i am confined to **windows***
-(happily announcing im switching to linux later this year!!!)
-
-***pronous:***\
-*normal men*
+*i hate **windows** but i still use it*
 
 ***looking to collaborate on:***\
-*dynarch project*
+*anything, really.*
 
 ***how to reach me:***\
-*on discord, with the name "ov3rhead"*
+*on discord, with the name "ovrhead"*
 
 ***things i want to learn***\
-*c or rust*
+*c or go*
 <!--
 **overhead1108/overhead1108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
